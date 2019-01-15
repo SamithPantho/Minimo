@@ -1,1 +1,1 @@
-# Minimo
+https://samithpantho.github.io/Minimo/
